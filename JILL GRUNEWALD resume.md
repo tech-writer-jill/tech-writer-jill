@@ -1,6 +1,6 @@
 # JILL GRUNEWALD
-311 2nd Avenue SE, New Brighton, MN 55112
-**Email:** jill.grunewald@gmail.com | **Phone:** 612-414-9278
+Technical writer with background in computer programming
+[jill.grunewald@gmail.com] [612-414-9278]
 
 ## EDUCATION
 
